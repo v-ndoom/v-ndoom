@@ -6,3 +6,4 @@ im 15 watch out<br/>
 higgs monaghan irl
 
 <img src="https://i.postimg.cc/SRV2yKCv/doom22.png" width="350"><br/>
+the very lazy stupid 3d renders on this page r mine no ai fuck ai
